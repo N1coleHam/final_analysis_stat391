@@ -3,6 +3,7 @@
 ## Data
 
 We looking at balls and stuff
+Discord link: https://discord.gg/stYnQfAu
 
 ## Questions
 
